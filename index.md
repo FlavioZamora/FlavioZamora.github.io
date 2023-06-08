@@ -16,6 +16,7 @@
 # SOBRE MI
 
 Soy un candidato joven en busca de oportunidades laborales, altamente motivado y comprometido a adquirir conocimientos y experiencia que me permitan crecer tanto a nivel personal como profesional. Mi objetivo es desarrollarme fuera del entorno académico, demostrando mi capacidad de aprendizaje y mi disposición para asumir nuevos desafíos.
+
 ***
 
 # EDUCACIÓN
