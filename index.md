@@ -70,4 +70,5 @@ Soy un candidato joven en busca de oportunidades laborales, altamente motivado y
 ## Personales
 **ING. Marjorie Mariela Zamora Pico**
 > +593 98 529 2282
+
 ***
