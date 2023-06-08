@@ -19,6 +19,7 @@ Soy un candidato joven en busca de oportunidades laborales, altamente motivado y
 
 ***
 
+
 # EDUCACIÓN
 
 **Universidad Politécnica Salesiana – UPS**
